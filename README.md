@@ -7,7 +7,7 @@
 
 - 👩🏻‍💻I’m looking to collaborate on any data analytics, software development amd web development project.
 
-- 🌎 I’m looking for make the world better place 
+- 🌎 I’m looking to make the world better place 
 
 
 
